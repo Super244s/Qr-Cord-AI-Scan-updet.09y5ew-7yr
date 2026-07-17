@@ -1,0 +1,1 @@
+# Qr-Cord-AI-Scan-updet.09y5ew-7yr
